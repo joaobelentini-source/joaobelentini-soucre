@@ -1,5 +1,5 @@
 # joaobelentini-soucre
 "SEJA BEM VINDO" !!
 
-Eu ne chamo João vitor de Almreida Belentini 😉
+Eu me chamo João vitor de Almeida Belentini 😉
 Moro em Foz do chopim PR 
