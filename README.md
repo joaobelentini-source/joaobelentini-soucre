@@ -6,4 +6,4 @@ Moro em Foz do chopim
 †ﾠ100% jesus
 ![](https://media1.tenor.com/m/IqI01bGF4a8AAAAC/hi.gif)
 
-![](https://media.tenor.com/AN1U6cKe-4gAAAAM/afcsafa-ali-safa.gif)
+![](https://media.tenor.com/ddmXM0th9GcAAAAm/tweedledee.webp)
